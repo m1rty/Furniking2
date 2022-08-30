@@ -1,2 +1,2 @@
 # Furniking
-https://m1rty.github.io/Furniking/
+https://m1rty.github.io/Furniking2/
